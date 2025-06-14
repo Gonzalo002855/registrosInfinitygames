@@ -1,0 +1,2 @@
+# registrosInfinitygames
+Pagina de Registros
